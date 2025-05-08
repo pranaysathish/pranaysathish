@@ -1,5 +1,7 @@
 # 💫 About Me:
- I’m Pranay J Sathish .  mail - [pranayjsathish@gmail.com]
+im pranay j sathish.
+developer.
+mail - [pranayjsathish@gmail.com]
 
 
 ## 🌐 Socials:
